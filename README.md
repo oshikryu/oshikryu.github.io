@@ -1,0 +1,1 @@
+# oshikryu.github.io
